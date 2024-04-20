@@ -1,6 +1,6 @@
 ## Olá! Eu sou o Gustavo 🖐️
 -👨🏻‍🎓 Estudante de ADS (Analise e Desenvolvimento de Sistemas)<br/>
--📪 Email: gustavo.silvasouzade@gmail.com </br>
+-📪 Contate-me: gustavo.silvasouzade@gmail.com </br>
 -🤖 Apaixonado por tecnologia
 
 
